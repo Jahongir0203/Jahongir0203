@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on good team 
 - 📫 How to reach me
 - Phone num=> (93) 083 64 60
-- Telegram: @Jahongir_1811
+- Telegram: @Jahongir0203
   
 
 <!---
